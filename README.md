@@ -1,0 +1,1 @@
+# akutanpamu12.github.io
